@@ -1,2 +1,2 @@
-<img src="https://media.giphy.com/media/l4KhJskf7HmMDctLq/giphy.gif" alt="joker"><span>
+<img src="https://i.imgur.com/9ozleBm.jpg" alt="joker"><span>
   
